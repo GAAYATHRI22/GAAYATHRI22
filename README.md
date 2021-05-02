@@ -1,0 +1,5 @@
+ Hi, I’m @GAAYATHRI22
+- 👀 I’m interested in CLOUD COMPUTING AND APP DEVELOPMENT.
+- 🌱 I’m currently learning AWS.
+- 💞️ Learning new things has always been my passion
+- 📫 How to reach me gaayathri.it18@bitsathy.ac.in 
